@@ -1,1 +1,1 @@
-# Armando-fetish-toys-
+# ArmandoFetish Toys
